@@ -1,0 +1,2 @@
+# TugasASD_SingleLingList_G1F021006_Rekaliana
+G1F021006_Rekaliana
